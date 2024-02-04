@@ -1,4 +1,5 @@
 # Chapter 1: How Did I End Up in a Basement?!
+
 I am practically skipping through the streets as the morning sun bounces off of skyscraper windows and settles into green trees, stone statues, park squares, and honking cars.  
 This is really the perfect day.  
 I stop in front of a giant, 100 story tall building that seems to reach beyond the clouds above. My first day at my dream tech company, Technolite. I spent the past 6 years slaving over my university degrees, working at different internships, doing research, everything I could manage to end up here.  
