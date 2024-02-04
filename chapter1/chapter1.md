@@ -30,10 +30,28 @@ A tall man in a dark gray suit with a crisp white shirt and a solid black tie wa
 As he reaches me, he extends a hand out for a handshake. The moment our hands join, his grip and his eye contact are so intense it feels like my soul is slowly leaving my body.  
 His eyes so gray and cold, they look like two stones floating, staring right at you.  
 
-[Y/N: H-h-hello, yes, thank you.](./chapter1.md)
+[Y/N: H-h-hello, yes, thank you.](./1.2/a.md)
 
-Edward: I apologize for being a little late. A meeting with some customers ran longer than anticipated. Please, follow me. I will show you to your office.
-I follow slightly behind Edward and take in the office as we walk. There are long desks with around 10 monitors on them, different people sitting there working. Some in calls, some working in silence, and some looking at their phones. We stop for a moment in front of an elevator and Edward presses the down button. We both step into the elevator and I wonder which floor I will work on. Of course I cannot expect to be too high up since I am just starting but a nice city view would be a plus! Maybe something like the 20th floor could be nice. Not too high and not too low. But instead, he presses the bottom button, below the lobby. As we make the long descent from the 54th floor, the ride seems to never end. Until finally, we reached, the basement?! As we step out of the elevator, I am greeted with fluorescent lighting making me feel like I am either in a prison or a hospital (which cannot be possible right?!) There is just a straight, long hallway which seems to extend indefinitely past Edward. He peeks over his shoulder to ensure that I also got out of the elevator and begins to walk down the hall. At the beginning of the walk, offices on both side of the hallway are filled with the sound of keyboards clicking, people discussing, and just general office sounds. But the longer we walk, the less noise there seems to be, and less people. Until, we reach the end of the hall. Not a single drop of natural sunlight can be found here. The gray carpet now looks much darker and ominous than it did 55 floors higher. A large metal door stands in front of the both of us.
-	Edward: Please use your ID to open the door so we can ensure it is working properly.
-Y/N: Y-y-yes of course!
-As I reach my ID towards the small, plastic gray square embedded into the wall, I feel a chill run down my spine. The little plastic pad beeps and the metal door unlocks with a large thud and Edward pushes the door open. A cool breeze seems to escape from the door and I feel goosebumps run across my skin. What have I gotten myself into and how did I end up in a basement?!
+    Edward: I apologize for being a little late. A meeting with some customers ran longer than anticipated. Please, follow me. I will show you to your office.
+
+I follow slightly behind Edward and take in the office as we walk.  
+There are long desks with around 10 monitors on them, different people sitting there working. Some in calls, some working in silence, and some looking at their phones.   
+We stop for a moment in front of an elevator and Edward presses the down button. We both step into the elevator and I wonder which floor I will work on.  
+Of course I cannot expect to be too high up since I am just starting but a nice city view would be a plus! Maybe something like the 20th floor could be nice. Not too high and not too low.  
+But instead, he presses the bottom button, below the lobby.  
+As we make the long descent from the 54th floor, the ride seems to never end.  
+Until finally, we reached, the basement?! As we step out of the elevator, I am greeted with fluorescent lighting making me feel like I am either in a prison or a hospital (which cannot be possible right?!)  
+There is just a straight, long hallway which seems to extend indefinitely past Edward.  
+He peeks over his shoulder to ensure that I also got out of the elevator and begins to walk down the hall.  
+At the beginning of the walk, offices on both side of the hallway are filled with the sound of keyboards clicking, people discussing, and just general office sounds.  
+But the longer we walk, the less noise there seems to be, and less people.  
+Until, we reach the end of the hall. Not a single drop of natural sunlight can be found here. The gray carpet now looks much darker and ominous than it did 55 floors higher.  
+A large metal door stands in front of the both of us.
+
+    Edward: Please use your ID to open the door so we can ensure it is working properly.
+    Y/N: Y-y-yes of course!
+
+As I reach my ID towards the small, plastic gray square embedded into the wall, I feel a chill run down my spine.  
+The little plastic pad beeps and the metal door unlocks with a large thud and Edward pushes the door open.  
+A cool breeze seems to escape from the door and I feel goosebumps run across my skin.  
+What have I gotten myself into and how did I end up in a basement?!
