@@ -1,0 +1,3 @@
+- Ask Alex to stay with you
+- Ask Eric to stay with you
+- Stay alone

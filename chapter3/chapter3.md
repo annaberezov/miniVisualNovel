@@ -45,11 +45,9 @@ After a solid couple hours of work, I feel my stomach calling for food.
 
 We all head to lunch together.
 After a nice meal of salad, croquettes, and some handmade pasta, the stress and weird activities from the morning seem to magically escape my mind. The three of us make our way back to our tucked away corner of the building. As I beep my badge and push the office door open, my jaw drops. All of our desks, monitors, keyboard, mice, and even office chairs are covered in gift wrapping paper! My station was covered in deep purple wrapping paper with my favorite character plastered all over it; Wamiji. What can I say, his thin long legs and his long pointy mustache are just too cute! Alex’s desk is covered in paper with tons of different horses on them. There are so many different types of horses, I didn’t even know there were so many types of horses…. Eric’s paper is light pink with tons of adorable teddy bears all over it. Our office definitely looks more colorful than it was before, but who did this?!
-Stay in the office late and see who comes in and catch them in the act
-Ask Alex to stay with you
-Ask Eric to stay with you
-Stay alone
-Leave a trap in the office to catch whoever is doing this
+
+- [Stay in the office late and see who comes in and catch them in the act](./3.6/a.md)
+- Leave a trap in the office to catch whoever is doing this
 
 Ok I think we should leave a trap in the office and that way we can catch whoever is doing these weird office pranks, regardless if someone confesses to it or not. 
 
