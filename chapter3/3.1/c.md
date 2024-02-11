@@ -1,0 +1,2 @@
+I decide it's best to enjoy the silence and not try any awkward conversation starters or small talk.
+We have a silent elevator ride and silent walk towards our office, tucked away as far as can be. I still wonder why we are in such a hidden part of the building? And why are there basically no people that work over here?

@@ -5,9 +5,11 @@ As I walk into the office the next day, I run into Alex and Eric also on their w
 - [Try to talk with Eric](./3.1/b.md)
 - [Stay silent](./3.1/c.md)
 
-Alex pulls open the metal door and we all head straight to our desks, there is a ton to do. As I sit down to start working, I notice that the F key is no longer on my keyboard. Before I can say anything, Eric calls out to the room
+Once we reach our office, Alex pulls open the metal door and we all head straight to our desks, there is a ton to do. As I sit down to start working, I notice that the F key is no longer on my keyboard. Before I can say anything, Eric calls out to the room
 
 	Eric: OK guys, very funny. Who took my E key from my keyboard?
+
+It's obvious that despite his giggles, Eric is quite annoyed by this...
 
 - [“Someone also took the F from my keyboard”](./3.2/a.md)
 - [“It was Alex, I am also missing the F from my keyboard”](./3.2/b.md)
@@ -48,8 +50,6 @@ After a nice meal of salad, croquettes, and some handmade pasta, the stress and 
 
 - [Stay in the office late and see who comes in and catch them in the act](./3.6/a.md)
 - [Leave a trap in the office to catch whoever is doing this](./3.6/b.md)
-
-Ok I think we should leave a trap in the office and that way we can catch whoever is doing these weird office pranks, regardless if someone confesses to it or not. 
 
 
 How to catch ghost / reveal him.
