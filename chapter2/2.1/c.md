@@ -1,0 +1,1 @@
+I decide to ask Eric about the project. He seems open enough to talk to me about it.

@@ -10,5 +10,5 @@ There is a mix of technical tasks, writing code, documentation, etc… and a lis
 
 I guess I should see what my other coworkers are working on so I can figure out what work I should be doing…
 
-- [Ask Alex what he is working on](./2.2.1/a.md)
-- [Ask Eric what he is working on](./2.2.1/b.md)
+- [Ask Alex what he is working on](./2.1.a/a.md)
+- [Ask Eric what he is working on](./2.1.a/b.md)
